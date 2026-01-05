@@ -16,7 +16,7 @@ The goal is to build my portfolio to be able to rebranch in 2027 into IT.
 
 If you are reading it there are three options:
 1) You are recruiter (thank you for taking me into concideretion whereever I sent my CV)
-2) You are Marcin or Weronika (hi there! :) )
+2) You are Oliwia, Marcin or Weronika (hi there! :) )
 3) You are very lost and have too much free time XD
 
 Nevertheless, I hope you like what you see!
